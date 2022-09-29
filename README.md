@@ -9,5 +9,4 @@ La burbuja de las punto-com se refiere al periodo comprendido entre 1997 y 2000.
 Sus inicios se remontan a 1997, cuando las bolsas de valores occidentales empezaron a crecer y multitud de empresas tecnológicas a nacer. Comenzó la euforia y todo el mundo quería estar subido a la «Nueva Economía».
 
 
-![Pico .com](https://fronterasblog.files.wordpress.com/2011/12/bubble_nasdaq.png
- "Pico .com")
+![Pico .com 2](https://fronterasblog.files.wordpress.com/2011/12/bubble_nasdaq.png "Pico .com 2")
