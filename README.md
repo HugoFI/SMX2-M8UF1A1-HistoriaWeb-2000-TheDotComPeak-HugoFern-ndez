@@ -10,4 +10,4 @@ Sus inicios se remontan a 1997, cuando las bolsas de valores occidentales empeza
 
 
 
-![Pico .com 2] (https://fronterasblog.files.wordpress.com/2011/12/bubble_nasdaq.png "Pico .com 2")
+![Pico .com 2] (https://economipedia.com/wp-content/uploads/nasdaq-100.png "Pico .com 2")
