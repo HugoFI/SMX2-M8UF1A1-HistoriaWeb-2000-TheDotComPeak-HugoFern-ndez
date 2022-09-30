@@ -3,7 +3,7 @@
 El pico del Dot com (.com) es el pico de la creación de empresas .com, de el cual relaciona una empresa con un dominio de Internet .com, que es utilizado sobre todo por empresas comerciales. La mayoría de los negocios de estas empresas son realizados a través de Internet.
 Después de ese crecimiento vino el colapso o burbuja del .com.
 
-## La burbuja .com 🖱️##
+## La burbuja .com 🖱️
 La burbuja de las punto-com se refiere al periodo comprendido entre 1997 y 2000. Durante dicho periodo se produjo un fuerte crecimiento de los valores económicos de las empresas relacionadas con Internet.  Llegando, de este modo, a provocar una fuerte burbuja económica que llevó a la quiebra a una gran cantidad de empresas.
 💸💰📉
 
